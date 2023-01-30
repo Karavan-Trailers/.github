@@ -13,11 +13,11 @@ Making trailers.
 
 🌈 Contribution guidelines - how can the community get involved?
 
-IDK buy some trailer?
+IDK buy some trailers?
 
 👩‍💻 Useful resources - where can the community find your docs? Is there anything else the community should know?
 
-Well we have notes on how things work of you work here.
+Well we have notes on how things work if you work here.
 
 🍿 Fun facts - what does your team eat for breakfast?
 
