@@ -1,5 +1,5 @@
-# What to do say here other than visit our [site](https://www.karavantrailers.com/) and socials ([Facebook](https://www.facebook.com/KaravanTrailers)) or ([Twitter](https://twitter.com/KaravanTrailers)).
- + OH Like - Sub and Share. Thats a thing right?
+# What to say here other than visit our [site](https://www.karavantrailers.com/) and socials ([Facebook](https://www.facebook.com/KaravanTrailers)) or ([Twitter](https://twitter.com/KaravanTrailers)).
+ + OH Like - Sub and Share. That's a thing.
  
  ## Hi there 👋
 
