@@ -1,4 +1,4 @@
-# What to say here other than visit our [site](https://www.karavantrailers.com/) and socials ([Facebook](https://www.facebook.com/KaravanTrailers)/[Instagram](https://www.instagram.com/karavan_trailers/)), [YouTube](https://www.youtube.com/@KaravanTrailersInc), or ([Twitter](https://twitter.com/KaravanTrailers)).
+# What to say here other than visit our [site](https://www.karavantrailers.com/) and socials [Facebook](https://www.facebook.com/KaravanTrailers)/[Instagram](https://www.instagram.com/karavan_trailers/), [YouTube](https://www.youtube.com/@KaravanTrailersInc), or [Twitter](https://twitter.com/KaravanTrailers).
  + OH Like - Sub and Share. That's a thing.
 
 Looking to work with us? Check out our listings on [Indeed](https://www.indeed.com/cmp/Karavan-Trailers,-LLC/) or [LinkedIn](https://www.linkedin.com/company/karavan-trailers-llc/).
